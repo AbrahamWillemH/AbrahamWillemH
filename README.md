@@ -2,7 +2,7 @@
 - 😍 You can call me Abe
 - 👀 I’m interested in music
 - 🌱 I’m currently learning to make her happy
-- 💞️ I’m looking to collaborate on NASA
+- 💞️ I’m looking to collaborate on Google 😶‍🌫️
 - 📫 You can find me on my instagram @abraham_willemh
 - 🙌 I'm currently looking for INGFOOO
 

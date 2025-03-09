@@ -1,6 +1,7 @@
 # Hi there, I'm Abraham Willem Hersubagyo. You can call me Abe.
 
 **Software Engineer | Open Source Enthusiast | Tech Explorer**
+
 I'm passionate about building innovative projects, solving problems, and constantly learning new technologies, tech stack, and exploring all about technology.
 
 # GitHub Stats
